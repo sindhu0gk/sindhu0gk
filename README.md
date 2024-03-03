@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sindhu0gk
+- 👀 I’m interested in coding,exploring new world 
+- 🌱 I’m currently studying BCA based on cloud technology anf information security
+- 📫 You can reach me through email:sindhugowda9738@gmail.com
